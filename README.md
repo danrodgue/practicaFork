@@ -5,4 +5,4 @@ Añade a continuación tu nombre,  apellidos (si quieres usar pseudónimo, me in
 Carmina Martinez 6W 1 DAW
 
 
-
+Hola amiguitos soy Daniel Rodriguez de 1 DAM M.
